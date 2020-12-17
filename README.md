@@ -8,3 +8,7 @@
 ● I code several languages and also 
 
 ● I often post my codings 
+
+If you have any questions please contact me by mail 
+
+kirak-pro@outlook.fr
