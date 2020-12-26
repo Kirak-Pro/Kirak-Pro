@@ -1,5 +1,5 @@
 
-🌱 I’m currently learning C# - C++ - JS - LUA
+🌱 I currently practice C# - C++ - JS - LUA
 
 ● I often post my codings 
 
